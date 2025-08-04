@@ -1,7 +1,7 @@
 ## Hi there 👋
 
-**I'm Rachel* is a ✨ I'm an Aries Sun, Libra Rising, Leo Moon ✨ 
-**TL;DR: An Enthusiast, Warm, Curious Human Being*
+# **I'm Rachel* ✨ Aries Sun, Libra Rising, Leo Moon ✨ 
+**TL;DR: That Makes me An Enthusiast, Warm, Curious Human Being*
 
 ### What I'm currently watching, reading, and listening to: *</li>
 
